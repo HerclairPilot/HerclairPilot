@@ -6,6 +6,7 @@
 - Helicopter and V2 fanatic 🤤.
 - I like.. Ultrakill, DVN, HSR.. Pacific Rim, and Transformers
 - Chronically offline outside of Discord
+  
 · · ──────────────── ꒰ঌ·✦·໒꒱ ───────────────────── · ·*
 
 DNI PROSHIP/NSFW.. You may have a chance to redeem yourself, but only if you learn from your mistakes...
