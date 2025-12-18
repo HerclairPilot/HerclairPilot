@@ -4,8 +4,8 @@
 - I have a lot of names but you can call me Ink!
 - I'm a minor!! Don't be weird or i'll get you
 - Helicopter and V2 fanatic 🤤.
-- I like.. Ultrakill, DVN, HSR.. Pacific Rim, and Transformers
-- Chronically offline outside of Discord
+- I like.. Ultrakill, DVN, HSR.. Umamusume Pacific Rim, and Transformers
+- Severely chronically offline outside of Discord
   
 · · ──────────────── ꒰ঌ·✦·໒꒱ ───────────────────── · ·*
 
