@@ -14,4 +14,5 @@
   
 · · ──────────────── ꒰ঌ·✦·໒꒱ ───────────────────── · ·*
 
-DNI PROSHIP/NSFW.. You may have a chance to redeem yourself, but only if you TRULY learn from your mistakes.
+DNI PROSHIP/NSFW, BASIC DNIs
+Thee shalt have a chance to redeem thyself, but only when thou TRULY learn from thine mistakes.
