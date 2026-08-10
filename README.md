@@ -4,7 +4,7 @@
 - I have a lot of names but you can call me Ink!
 - I'm a minor!! Don't be weird or I'll get you.
 - Helicopter enthusias, I like helicoptr ok
-- I like.. Ultrakill, DVN, HSR.. Umamusume, Pacific Rim, and Transformers
+- Multifandom, mostly G/D, Uma, Ultrakill, and abit of R1999 with Limbus
 - Severely chronically offline outside of Discord/Pony Town, user is Inkthepilot if you want to see my evil.
 - Socially awkward + lack of confidence, hit me with the int first gang <3
 - Vile mouth, I won't hesitate to call you slurs /aff and /j way.
